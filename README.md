@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @blaixlz
+- i'm beginner
+- 🌱 I’m still learning ...
